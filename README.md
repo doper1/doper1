@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @doper1
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on a project
+- 📫 How to reach me: adamofer42@gmail.com
